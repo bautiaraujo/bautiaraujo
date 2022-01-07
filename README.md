@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @bautiaraujo
-- 👀 I’m interested in coding, basketbal and everything related to yhe tech industry.
+- 👀 I’m interested in coding, basketball and everything related to yhe tech industry.
 - 🌱 I’m currently learning to code.
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me: @araujobauti on Instagram
